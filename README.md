@@ -15,7 +15,7 @@
 
 - 👨‍💻 All of my projects are available at my Git repository [https://github.com/abhimis12?tab=repositories](https://github.com/abhimis12?tab=repositories)
 
-- 📫 How to reach me [abhishekkumarmishra3642gmail.com](abhishekkumarmishra3642gmail.com)
+- 📫 How to reach me [abhishekkumarmishra364gmail.com](abhishekkumarmishra3642gmail.com)
 
 - ⚡ Fun fact **Watching movie**
 
